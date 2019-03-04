@@ -6,3 +6,6 @@ I'm hanna
 
 
 gtggt5gt5gt
+
+
+  Cyc jak myc a mleko ani do kafeju
